@@ -35,7 +35,7 @@ Phat-Trien Thai
 trientp@viettel.com.vn
 </p>
 <p align="center">
-phattrienthai99@gamil.com
+phattrienthai99@gmail.com
 </p>
 <p align="center">
 0979675072
